@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ergcream
-- 👀 I’m interested in blockchain technology , partnerships , education & more ...
-- 🌱 I’m currently learning graphical designs & blockchain technology 
+- 👀 I’m interested in collabs
+- 🌱 I’m currently learning cryptospace blockchain technology 
 - 💞️ I’m looking to collaborate on projects have partnerships a more stable future ...
 - 📫 How to reach me ergcream@gmail.com 
 ---
